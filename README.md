@@ -1,0 +1,2 @@
+# Magistera
+Magisterska pracula
